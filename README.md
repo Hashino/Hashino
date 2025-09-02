@@ -1,1 +1,1 @@
-since I'm alive, I'll try to live a good life
+back-end/systems software engineer. aspiring to be an arch-hacker
