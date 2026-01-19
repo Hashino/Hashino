@@ -1,1 +1,1 @@
-meta cientista
+Meta Artist
